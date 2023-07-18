@@ -4,8 +4,6 @@ THE PROJECT EVERYONE HAS BEEN WAITING FOR !!!
 THE PINNACLE OF MY CREATION
 THE TELETUBBIE POKEDEX !!!
 
-plz dont clone/fork my creation
-
 how to install:
 (this is quick and dirty since this is a meme)
 
